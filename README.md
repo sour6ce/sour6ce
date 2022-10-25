@@ -6,7 +6,7 @@ I'm Gabriel Hernandez Rodriguez (alias G. Herrod or Sour_ce) and i'm a computer 
 
 ---
 
-Contact me through [email](mailto:admin@cloudhadoop.com) or [telegram](https://t.me/sour_ce).
+Contact me through [email](mailto:gabrielhdezrodriguez@gmail.com) or [telegram](https://t.me/sour_ce).
 
 
 
